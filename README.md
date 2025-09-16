@@ -7,5 +7,5 @@
 + Los minions. Enlace:https://www.imdb.com/title/tt2293640/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_Los%2520minions
 + Ali G. Enlaces: https://www.imdb.com/title/tt0284838/?ref_=nv_sr_srsg_4_tt_4_nm_4_in_0_q_Ali%2520g
 
-  ![Imagen](https://www.pinterest.com/pin/862087553640598580/)
+  ![Imagen](https://wallpapers.com/images/high/cute-minion-faces-vejheqrt9whypgzf.webp)
   
